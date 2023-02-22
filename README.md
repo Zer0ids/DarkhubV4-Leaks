@@ -1,3 +1,3 @@
-You may wonder who I am, maybe there's more than one of us though...
+# Darkhub V4 Leaks
 
-Hi Adam, your hub is gay :) 
+Very old darkhub leaks (Original by: [LeakMaster](https://github.com/LeakMaster))
